@@ -1,2 +1,2 @@
-![image](https://github.com/user-attachments/assets/5f102f46-6a95-4ed3-9e7c-d334ab6d0338)
+![Türk Bayrağı GIF](https://media.tenor.com/6cVx7x5t-OoAAAAC/flag-turkey.gif)
 
