@@ -1,2 +1,2 @@
-![Penguen GIF](https://media1.tenor.com/m/32-amfpsB8gAAAAd/penguin-cute.gif)
+![Penguen GIF](https://media.tenor.com/w-f13dPtcyEAAAAi/happy-dance.gif)
 
