@@ -1,2 +1,1 @@
-![Türk Bayrağı GIF](https://media.tenor.com/6cVx7x5t-OoAAAAC/flag-turkey.gif)
-
+https://tenor.com/tr/view/flag-turkey-flag-of-turkey-gif-27683222
