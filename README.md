@@ -1,1 +1,2 @@
-https://tenor.com/tr/view/flag-turkey-flag-of-turkey-gif-27683222
+
+https://media1.tenor.com/m/IX22i_TzcqMAAAAd/flag-turkey.gif
