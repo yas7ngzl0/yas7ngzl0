@@ -1,1 +1,2 @@
-![Dans Eden Penguen](https://media.tenor.com/images/2e3f7f3e3f7f3e3f7f3e3f7f3e3f7f3e/tenor.gif)
+![image](https://github.com/user-attachments/assets/5f102f46-6a95-4ed3-9e7c-d334ab6d0338)
+
